@@ -20,8 +20,8 @@ I am a youtuber
 [![YouTube Channel](https://www.youtube.com/channel/UCF35iqQ2BRqF4IYQA4Ln_0A)](https://www.youtube.com/channel/UCF35iqQ2BRqF4IYQA4Ln_0A?sub_confirmation=1)
 I Try my best to Upload As Much as i can but you cant alwas Record i Have a life.
 
-I Try My best to Record New ConeTant 
+I Try My best to Record New ConeTent 
 
-But Honestly i am not getting Veiws I try my best i make good Content But... No mater how mouch i try i will never get 100 Subs UnLess... 
+But Honestly i am not getting Veiws I try my best i make good Content But... No mater how much i try i will never get 100 Subs UnLess... 
 
 You Can [![Help](https://www.youtube.com/channel/UCF35iqQ2BRqF4IYQA4Ln_0A)](https://www.youtube.com/channel/UCF35iqQ2BRqF4IYQA4Ln_0A?sub_confirmation=1) Me out
